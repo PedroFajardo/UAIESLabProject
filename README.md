@@ -1,3 +1,4 @@
 # UAIESLabProject
 
- O Pedro Fajardo é gay
+Pedro Fajardo, 
+Pedro Matos, 84986
